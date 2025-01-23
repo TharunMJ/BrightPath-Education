@@ -1,0 +1,1 @@
+BrightPath Education provides innovative learning solutions, offering online courses, skill-building programs, and modern educational tools. Our mission is to "Illuminate the Future through Knowledge," ensuring quality education for all ages.
